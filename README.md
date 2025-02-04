@@ -16,3 +16,5 @@ yeah
 Repository for a plane website project
 
 Repository
+
+A new day is a new opportunity and beginning
