@@ -22,3 +22,5 @@ A new day is a new opportunity and beginning
 feb 6, 2025
 
 feb 8 ,2025
+
+Feb 9, 2025. I want to become a great communicator to because im timid.
