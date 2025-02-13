@@ -27,4 +27,6 @@ Feb 9, 2025. I want to become a great communicator to express my ideas.
 
 Feb 13, 2025 - I want to become a great public speaker.
 
+Feb 14, 2025 - Do it gradually, practice practice.
+
 
