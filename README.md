@@ -29,4 +29,6 @@ Feb 13, 2025 - I want to become a great public speaker.
 
 Feb 14, 2025 - Do it gradually, practice practice.
 
+Feb 21, 2025 - One step at a time.
+
 
