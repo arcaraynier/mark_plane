@@ -33,4 +33,6 @@ Feb 21, 2025 - One step at a time.
 
 Feb 22, 2025 - Don't expect too much, you can't control the wind, but you can adjust the sail., it means its not about what happens to you, it how you react, to make a better choice. -Gino
 
+Feb 26, 2025 - 
+
 
