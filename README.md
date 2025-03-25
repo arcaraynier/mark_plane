@@ -38,6 +38,11 @@ Feb 22, 2025 - Don't expect too much, you can't control the wind, but you can ad
 Feb 26, 2025 - 
 
 March 17, sigh
-March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
+March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.h
+
+March 25,- 6 am in, tas nadugayan ko sa email, then nag return asset SI gamarcha, naghibi Siya taga guimaras pa sa, inspiro Siya una workmate niya SI manang faith
+
+March 26, 2025 - ay ambot simple nga ulubrahon na pa complicate ko pa. 
+
 
 
