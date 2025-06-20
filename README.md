@@ -45,4 +45,4 @@ March 25,- 6 am in, tas nadugayan ko sa email, then nag return asset SI gamarcha
 March 26, 2025 - ay ambot simple nga ulubrahon na pa complicate ko pa. 
 
 
-
+June 20, 2025 sigh, sagay overtime wla bayad
